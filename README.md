@@ -15,7 +15,6 @@
 - Opening scene
    - 17th: Rape, abuse, no justice 
    - 19th: Extra-judicial revenge by Godfather
-- Setting
    - 1st, 3rd, 5th, 9th: Talia's wedding 
 
 ## II
